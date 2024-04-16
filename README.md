@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports 
 - 🌱 I’m currently learning Python and java script 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me , you can teach me at instagram @ i_am_dhoni_fan_777
+- 📫 How to reach me , you can reach me at instagram @ i_am_dhoni_fan_777
 - 😄 Pronouns: He
 - ⚡ Fun fact: I'm in Tamilnadu, India 
 
